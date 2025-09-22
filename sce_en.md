@@ -1,3 +1,5 @@
+# The Self-Cancelling Existence (SCE) Model - A Holistic Framework for the Origin of the Universe, Physical Laws, and the Role of Consciousness
+
 **Author:** Uğur Korkmaz 
 
 **Location:** Turkey
